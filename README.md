@@ -1,8 +1,8 @@
 # mi-cancion
-Hicimos una joda y se pico,
-se nos llenó de gente y la casa explotó,
-queríamos hacerla como algo publico
-pero alguien del entorno nos ha delatado...
+Hicimos una festa  y exploto 
+se nos llenó de personas y la musica exploto 
+queríamos hacerla como algo privado
+pero alguien del entorno nos ha descu...
 
 Aaahh...no podemos confiar en los compañeros de juventud 
 Libre ,solo si nos fijamos en la lealtad
