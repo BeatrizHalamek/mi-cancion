@@ -4,10 +4,10 @@ se nos llenó de gente y la casa explotó,
 queríamos hacerla como algo privado
 pero alguien del entorno nos ha delatado...
 
-Aaahh... que nunca termine la amistad.
-Libre como el viento,
-fuerte como un sentimiento
-de verdad,
+Aaahh...no podemos confiar en los compañeros de juventud 
+Libre ,solo si nos fijamos en la lealtad
+fuerte como un viento
+si seguimos así,
 no es necesario que te diga que tenemos
 una gran amistad (Gran amistad),
 crece como el tiempo vive con cada momento de verdad,
