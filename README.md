@@ -1,7 +1,7 @@
 # mi-cancion
-Hicimos una fiesta y se complicó,
+Hicimos una joda y se pico,
 se nos llenó de gente y la casa explotó,
-queríamos hacerla como algo privado
+queríamos hacerla como algo publico
 pero alguien del entorno nos ha delatado...
 
 Aaahh...no podemos confiar en los compañeros de juventud 
