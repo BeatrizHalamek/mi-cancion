@@ -1,11 +1,11 @@
-# mi-cancion
-Hicimos una festa  y exploto 
-se nos llenó de personas y la musica exploto 
+#mi-cancion
+estabamos solos en casa y derrepente
+se nos llenó de personas y la musica exploto
 queríamos hacerla como algo privado
-pero alguien del entorno nos ha descu...
+pero alguien del entorno nos descubrió 
 
-Aaahh...no podemos confiar en los compañeros de juventud 
-Libre ,solo si nos fijamos en la lealtad
+Aaahh...no podemos confiar en los compañeros de juventud
+Libre, solo si nos fijamos en la lealtad
 fuerte como un viento
 si seguimos así,
 no es necesario que te diga que tenemos
